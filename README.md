@@ -1,1 +1,1 @@
-https://branchesko.github.io/rsschool-cv/cv
+https://branchesko.github.io/rsschool-cv/
